@@ -7,10 +7,14 @@ special offer for those who walk in
 
 operation time:
 9.30 A.M - 4.30 A.M 
+
 MONDAY TO FRIDAY 
 
 SATURDAY open on morning only
 
 SUNDAY closed
 
-provide private dating table 
+provide private dating table
+
+30% of profit will donate to Aman Palestine
+
